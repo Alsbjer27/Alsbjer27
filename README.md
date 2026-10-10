@@ -40,10 +40,8 @@ My interests lie at the intersection of technology and visual creativity. I enjo
 - Adobe Substance 3D Painter — basic familiarity
 - Experience with related 3D and digital-content creation tools
 
-## Selected projects
-
-Project descriptions and links coming soon.
-
 ## Contact
 
 Contact details and professional links coming soon.
+E-mail: emial133@student.liu.se
+Phone: +46 70 827 64 64
